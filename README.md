@@ -1,2 +1,2 @@
-Administration On Information Systems by Denys Romanyshyn
+Administration On Information Systems by Denys Romanyshyn.
 
